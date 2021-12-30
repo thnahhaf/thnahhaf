@@ -3,8 +3,7 @@
 - ✨She/Her✨
 - Previously coding
 - Social acc currently @dacvucat @hthadez
+- hachu#0063 (discord)
+- 17+
+- thnahhaf is a ✨ special ✨ repository because of her `README.md` 
 
-<!---
-thnahhaf/thnahhaf is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
